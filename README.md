@@ -9,4 +9,8 @@ app play store https://play.google.com/store/apps/details?id=com.shikudo.focus.g
 
 ## ALGUMAS DAS MINHAS ANOTAÇÕES DAS AULAS QUE PODEM TE AJUDAR A REVISAR O CONTEUDO
 https://www.canva.com/design/DAGH4rTutqE/2UB7XSGo2MpDeoC8UGeBaw/edit?utm_content=DAGH4rTutqE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 ## NOVO DESAFIO SITE CRIADO  https://sib1.app.br/sites/001/index.aspx?parametros=k%252bTzBCJaDtTibS%252bxnZs0OsIUjuVefKr1lKjl0f22439rJf6eu2i7ALcSOY17z4%252fF
+
+## DESAFIO DO SITE 
+https://www.canva.com/design/DAGIs0Po6fI/zBBUO_8OVQ3pktdq0A3Dzw/edit?utm_content=DAGIs0Po6fI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
